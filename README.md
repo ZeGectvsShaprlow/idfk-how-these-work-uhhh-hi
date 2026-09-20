@@ -1,2 +1,14 @@
 # idfk-how-these-work-uhhh-hi
-hi guys
+uhhhhh hi
+is this an intro thingy or what
+um
+Hello
+waves
+ok uh extra info i guess???
+
+i do not EVER block like EVER so if you get blocked i have a reason why and you aren’t getting unblocked at all
+um
+
+idont know what to add
+
+unstable go i guess?????
